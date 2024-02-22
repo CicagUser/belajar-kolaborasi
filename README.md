@@ -1,3 +1,2 @@
 # belajar-kolaborasi
-
-belajar mpve on asyikkkk
+Tiada bintang kan bersinar, tiada bumi kan berputar
